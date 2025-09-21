@@ -18,5 +18,5 @@ Kenalin nama ku Timotius Christian Sembiring, biasanya orang memanggil ku Timo/M
 - Bermain alat musik, seperti gitar dan keyboard
 - Bernyanyi
 - Bermain game
-- Healinggggggggggggggg
+- Healing
 
