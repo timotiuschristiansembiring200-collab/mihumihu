@@ -13,3 +13,4 @@ Sebenarnya masih banyak yang dibingungkan, namun saya terus mencoba untuk memaha
 
 ### SS Tugas 2
 ![image alt](https://github.com/timotiuschristiansembiring200-collab/mihumihu/blob/836de6fc5d7d57a30b63703f27987ec7123edc00/Screenshot%202025-09-21%20222150.png)
+![image alt](https://github.com/timotiuschristiansembiring200-collab/mihumihu/blob/c111f58dfb515234556c616ebde072b2bcdacedc/Screenshot%202025-09-21%20215606.png)
