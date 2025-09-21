@@ -8,4 +8,5 @@ Sebenarnya masih banyak yang dibingungkan, namun saya terus mencoba untuk memaha
 
 ## Screenshot
 
+### SS Prompt
 ![image alt](https://github.com/timotiuschristiansembiring200-collab/mihumihu/blob/54aefc9469cbddc1878363e34ce88d49e80a1a63/Screenshot%202025-09-21%20211041.png)
