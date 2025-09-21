@@ -12,5 +12,4 @@ Sebenarnya masih banyak yang dibingungkan, namun saya terus mencoba untuk memaha
 ![image alt](https://github.com/timotiuschristiansembiring200-collab/mihumihu/blob/54aefc9469cbddc1878363e34ce88d49e80a1a63/Screenshot%202025-09-21%20211041.png)
 
 ### SS Tugas 2
-![image alt](<img width="1920" height="1080" alt="image" src="https://github.com/user-attachments/assets/8c62e2cf-70d5-490c-a58c-6e4426b23943" />
-)
+![image alt](https://github.com/timotiuschristiansembiring200-collab/mihumihu/blob/836de6fc5d7d57a30b63703f27987ec7123edc00/Screenshot%202025-09-21%20222150.png)
